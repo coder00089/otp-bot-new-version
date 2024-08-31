@@ -26,14 +26,14 @@ Vouches Group: https://t.me/+NRi-i3Vd5dc2MDdk
 
 NEW Telegram Channel https://t.me/+1IxDGYXtndk3ZDY8
 
-Old Telegram Channel https://t.me/+fzkvq8FdnQY2ZmNh
+Old Telegram Channel 
 
     (Old Channels are Banned)
+    https://t.me/+fzkvq8FdnQY2ZmNh
     https://t.me/+I2QcslRt8HM2YTEx
     https://discord.gg/ghHtyDevI
     https://t.me/+uftsns3gsKhdLfc1tUy
     https://t.me/+fzkvq8FdnQY2ZmNh
-    https://t.me/otpbotc
 
 
 # Buy me coffee: 
