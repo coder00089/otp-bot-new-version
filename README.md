@@ -16,7 +16,7 @@
 # For Customization or Private OTP Bots Contact me on my new Chennel and Server
 
     Discord Server:  https://discord.gg/CVgscsvRRx
-    Telegram Channel https://t.me/otpbotc
+    Telegram Channel https://t.me/+FMegMiNVn-I2MzY0
     Telegram Bot https://t.me/coder00089bot
     DM Discord: Coder089#8305
     DM Telegram: @Coder00089
