@@ -22,7 +22,7 @@
     DM Telegram: @Coder00089
 Discord Server: https://discord.gg/CVgscsvRRx
 
-Vouches Group: https://t.me/+q-AoQPBdVJllODNh
+Vouches Group: https://t.me/+NRi-i3Vd5dc2MDdk
 
 NEW Telegram Channel https://t.me/otpbotc
 
