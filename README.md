@@ -24,7 +24,7 @@ Discord Server: https://discord.gg/CVgscsvRRx
 
 Vouches Group: https://t.me/+NRi-i3Vd5dc2MDdk
 
-NEW Telegram Channel https://t.me/+FMegMiNVn-I2MzY0
+NEW Telegram Channel: https://t.me/+FMegMiNVn-I2MzY0
 
 Old Telegram Channel 
 
