@@ -17,9 +17,9 @@
 
     Discord Server:  https://discord.gg/CVgscsvRRx
     Telegram Channel https://t.me/+FMegMiNVn-I2MzY0
-    Telegram Bot https://t.me/coder00089bot
+    Telegram Bot https://t.me/coder000089bot
     DM Discord: Coder089#8305
-    DM Telegram: @Coder00089
+    DM Telegram: @Coder000089
 Discord Server: https://discord.gg/CVgscsvRRx
 
 Vouches Group: https://t.me/+NRi-i3Vd5dc2MDdk
