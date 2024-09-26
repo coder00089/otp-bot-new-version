@@ -16,15 +16,15 @@
 # For Customization or Private OTP Bots Contact me on my new Chennel and Server
 
     Discord Server:  https://discord.gg/CVgscsvRRx
-    Telegram Channel https://t.me/+FMegMiNVn-I2MzY0
+    Telegram Channel: https://t.me/+sGKMj323qPI5MWNk
     Telegram Bot https://t.me/coder000089bot
     DM Discord: Coder089#8305
     DM Telegram: @Coder000089
 Discord Server: https://discord.gg/CVgscsvRRx
 
-Vouches Group: https://t.me/+NRi-i3Vd5dc2MDdk
+Vouches Group: https://t.me/+FSCXJ9Bf8X1jNGY8
 
-NEW Telegram Channel: https://t.me/+FMegMiNVn-I2MzY0
+NEW Telegram Channel: https://t.me/+sGKMj323qPI5MWNk
 
 Old Telegram Channel 
 
