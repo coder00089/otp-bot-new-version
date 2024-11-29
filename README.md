@@ -1,4 +1,4 @@
-# New Version Of Simple My OTP Bot 
+# New Version Of Simple My OTP Bo
  
     Simple OTP Bot, working with any company or service name. 
     New OTP Bot, working with any company or service name to fetch otp code.
